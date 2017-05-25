@@ -1,3 +1,0 @@
-
-# MIDPS
-Prima Sarcina!
